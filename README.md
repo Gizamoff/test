@@ -1,1 +1,1 @@
-![Frame 1Photoshop](https://github.com/Gizamoff/test/assets/152936142/6bc9dc58-f2fc-4af6-9c1f-9c0c04adc60c)
+![Frame 1Photoshop (1)](https://github.com/Gizamoff/test/assets/152936142/24ad6ea5-4ff1-49c7-823c-a371e010786c)
